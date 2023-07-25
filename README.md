@@ -1,1 +1,0 @@
-# gamusinok22.github.io
